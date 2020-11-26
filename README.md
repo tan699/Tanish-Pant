@@ -1,1 +1,1 @@
-# Tanish-Pant
+# Tanishpant
